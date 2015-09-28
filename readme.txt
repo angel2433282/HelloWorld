@@ -1,1 +1,1 @@
-Hola, soy Angel Pedro Samper Albaladejo
+Hola, soy Angel Pedro Samper Albaladejo y vivo en San Pedro
